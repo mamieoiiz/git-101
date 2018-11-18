@@ -2,6 +2,6 @@
 
 Today we learn GITHUB
 
-so funny :D
+so funny, Yeah! :D
 
 EiEi
